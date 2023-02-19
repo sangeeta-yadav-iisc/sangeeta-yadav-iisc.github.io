@@ -1,1 +1,0 @@
-# shongi-yd.github.io
